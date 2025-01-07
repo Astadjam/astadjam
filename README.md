@@ -27,4 +27,4 @@
 
 RESEAUX SOCIAUX : 
 
-[Linkekin](https://www.linkedin.com/in/astadjam-ahmadou-803072118/)
+[Linkedin](https://www.linkedin.com/in/astadjam-ahmadou-803072118/)
